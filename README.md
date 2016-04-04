@@ -1,2 +1,3 @@
 # I-love-dis-
-Starting afresh
+
+It takes time to learn...though it helps 
